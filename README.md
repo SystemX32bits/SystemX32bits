@@ -4,7 +4,7 @@ Estudante.exe◀️
  
   HCM 
 
-! [Gojo Satoru, Red Reversal] (https://tenor.com/pt-BR/view/gojo-toji-reversal-red-red-jujutsu-kaisen-gif-12441723739347164370)
+![Gojo Satoru, Red Reversal](https://media1.tenor.com/m/rKnh0mVVHNIAAAAd/gojo-toji.gif)
  
  
 
